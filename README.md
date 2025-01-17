@@ -1,2 +1,0 @@
-# Takeoversite
-## Takeover by MrwhiteDon
